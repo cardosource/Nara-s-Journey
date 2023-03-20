@@ -6,7 +6,7 @@
  _Nara é uma gata fantasma curiosa que está em busca de uma compreensão mais profunda do universo e de si mesma. Ela sempre soube que havia mais na vida do que o que se pode ver, e desde que se tornou um fantasma, suas perguntas e incertezas só aumentaram.
 Nara vive em uma casa aconchegante, cheia de objetos que pertenceram a diferentes gerações de sua família. Ela sempre se sentiu atraída pelos livros antigos, pelas fotos amareladas pelo tempo e pelas histórias que esses objetos contam. E é em sua própria casa que Nara começa sua jornada em busca de sabedoria espiritual._
 
-_A jornada de Nara começa com pequenos atos de curiosidade e descoberta. Ela passa horas observando a luz do sol que entra pela janela, os pássaros que voam em seu jardim e os sons misteriosos que vêm do porão. Logo, porém, ela começa a perceber que sua jornada não será fácil, pois há muitas perguntas sem respostas e mistérios a serem desvendados._
+_A jornada de Nara começa com pequenos atos de curiosidade e descoberta. Ela passa horas observando a luz do sol que entra pela janela, os pássaros que voam em seu jardim e os sons misteriosos que vêm do sótão. Logo, porém, ela começa a perceber que sua jornada não será fácil, pois há muitas perguntas sem respostas e mistérios a serem desvendados._
 
 _E assim, Nara começa sua busca por conhecimento espiritual em sua própria casa, uma jornada que a levará a lugares inesperados e a descobertas surpreendentes sobre si mesma e sobre o mundo que a cerca_
 
